@@ -1,5 +1,7 @@
 # Garlic Parmesan Breadsticks
 
+<img src="http://i.imgur.com/dWb4hLe.jpg" width="300">
+
 ### Ingredients:
 *   *1 1/2 cups warm water*
 *   *1 tbsp instant yeast*
