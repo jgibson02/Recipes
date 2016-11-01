@@ -1,5 +1,7 @@
 #Milk and Cookie cups
 
+<img src="http://i.imgur.com/swnqif6.jpg" width=300>
+
 ### Ingredients:
 
 ##### For the cookies:
