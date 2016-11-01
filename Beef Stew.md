@@ -1,5 +1,7 @@
 #Beef Stew
 
+<img src="http://i.imgur.com/mLzH4rG.jpg" width=300>
+
 ### Ingredients
 ##### Stew
 *   *2 1/2 lbs of stew meat*
