@@ -1,5 +1,7 @@
 # Ultimate Chocolate Chip Cookies
 
+<img src="http://i.imgur.com/uKth64m.jpg" width=300>
+
 ##### Makes about 24 cookies
 
 ### Ingredients
