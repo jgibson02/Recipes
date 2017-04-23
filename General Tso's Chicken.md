@@ -1,4 +1,3 @@
-<<<<<<< HEAD
 # General Tso's Chicken
 
 ### Ingredients:
@@ -68,4 +67,3 @@ Get the chicken and in the same bowl it was marinated in put the cup of corn sta
 
 ##### Sauce:
 Now get another bowl and put the soy sauce, oyster sauce, rice wine, sugar, vinegar, water and corn starch in and give it a stir. Now put the pan/wok on the heat, medium heat, and put the oil in the pan. Add the green onion and the chilies to the pan and cook them for 2 minutes. Put the sauce in and heat until it is thick. Put the chicken in and stir the sauce around making sure you cover all the chicken with the sauce, garnish with sesame seeds and green onion.
->>>>>>> 13c68eff03c3de3fc960f4015925346976ddfe0c
