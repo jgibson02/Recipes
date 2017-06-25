@@ -9,15 +9,15 @@
 *   *1/3 cup granulated sugar*
 *   *1/2 cup light-brown sugar*
 *   *1 large egg yolk*
-*   *2 teaspoons vanilla extract*
+*   *2 tsp vanilla extract*
 *   *2 cups all-purpose flour, sifted*
-*   *1/2 teaspoon salt*
+*   *1/2 tsp salt*
 *   *1 cup mini chocolate chips*
 
 ##### For the cookie shots:
 *   *1 cup dark-chocolate candy melts*
 *   *1 1/2 cups milk*
-*   *1 1/2 teaspoons vanilla extract*
+*   *1 1/2 tsp vanilla extract*
 
 ### Directions
 1.  Preheat oven to 350°F. Grease the molds of a popover pan.

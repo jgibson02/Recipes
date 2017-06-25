@@ -4,20 +4,20 @@
 ##### Pork Butt:
 *  *1 whole bone-in pork butt or picnic ham (8 to 10 pounds)*
 *  *1 cup white sugar*
-*  *1 cup plus 1 tablespoon kosher salt*
-*  *7 tablespoons brown sugar*
+*  *1 cup plus 1 tbsp kosher salt*
+*  *7 tbsp brown sugar*
 
 ##### Ginger-Scallion Sauce:
 *  *2 ½ cups thinly sliced scallions, both green and white parts*
 *  *½ cup peeled, minced fresh ginger*
 *  *¼ cup neutral oil (like grapeseed)*
-*  *1 ½ teaspoons light soy sauce*
-*  *1 scant teaspoon sherry vinegar*
-*  *½ teaspoon kosher salt, or to taste*
+*  *1 ½ tsp light soy sauce*
+*  *1 scant tsp sherry vinegar*
+*  *½ tsp kosher salt, or to taste*
 
 #### Ssam Sauce:
-*  *2 tablespoons fermented bean-and-chili paste (ssamjang, available in many Asian markets, and online)*
-*  *1 tablespoon chili paste (kochujang, available in many Asian markets, and online)*
+*  *2 tbsp fermented bean-and-chili paste (ssamjang, available in many Asian markets, and online)*
+*  *1 tbsp chili paste (kochujang, available in many Asian markets, and online)*
 *  *½ cup sherry vinegar*
 *  *½ cup neutral oil (like grapeseed)*
 
@@ -39,4 +39,4 @@ Make the ssam sauce. In a medium bowl, combine the chili pastes with the vinegar
 ##### Step 5
 Prepare rice, wash lettuce and, if using, shuck the oysters. Put kimchi and sauces into serving bowls.
 ##### Step 6
-When your accompaniments are prepared and you are ready to serve the food, turn oven to 500. In a small bowl, stir together the remaining tablespoon of salt with the brown sugar. Rub this mixture all over the cooked pork. Place in oven for approximately 10 to 15 minutes, or until a dark caramel crust has developed on the meat. Serve hot, with the accompaniments.
+When your accompaniments are prepared and you are ready to serve the food, turn oven to 500. In a small bowl, stir together the remaining tbsp of salt with the brown sugar. Rub this mixture all over the cooked pork. Place in oven for approximately 10 to 15 minutes, or until a dark caramel crust has developed on the meat. Serve hot, with the accompaniments.

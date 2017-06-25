@@ -3,10 +3,10 @@
 ### Ingredients:
 *  *4 large eggs*
 *  *1 1/4 cups Double-Dutch Dark Cocoa or Dutch-process cocoa*
-*  *1 teaspoon salt*
-*  *1 teaspoon baking powder*
-*  *1 teaspoon espresso powder*
-*  *1 tablespoon vanilla extract*
+*  *1 tsp salt*
+*  *1 tsp baking powder*
+*  *1 tsp espresso powder*
+*  *1 tbsp vanilla extract*
 *  *1 cup (2 sticks) unsalted butter*
 *  *2 1/4 cups sugar*
 *  *1 1/2 cups King Arthur Unbleached All-Purpose Flour*
