@@ -1,11 +1,11 @@
 # Knead Not Sourdough
 
 ### Ingredients:
-*   *17 1/2 ounces bread flour, plus extra for shaping*
-*   *1/4 teaspoon active-dry yeast*
-*   *2 1/2 teaspoons kosher salt*
-*   *12 ounces filtered water*
-*   *2 tablespoons cornmeal*
+*   *17 1/2 oz bread flour, plus extra for shaping*
+*   *1/4 tsp active-dry yeast*
+*   *2 1/2 tsp kosher salt*
+*   *12 oz filtered water*
+*   *2 tbsp cornmeal*
 
 ### Directions:
 Whisk together the flour, yeast and salt in a large mixing bowl. Add the water and stir until combined. Cover the bowl with plastic wrap and allow to sit at room temperature for 19 hours.

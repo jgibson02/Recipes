@@ -3,19 +3,19 @@
 ### Ingredients:
 ##### Scones:
 * *2 cups all-purpose flour*
-* *2 teaspoons baking  powder*
-* *1 tablespoon sugar*
-* *1/2 teaspoon salt*
-* *6 tablespoons butter*
+* *2 tsp baking  powder*
+* *1 tbsp sugar*
+* *1/2 tsp salt*
+* *6 tbsp butter*
 * *2 eggs, beaten*
 * *1/2 cup heavy cream*
-* *1/2 teaspoon vanilla*
+* *1/2 tsp vanilla*
 
 ##### Salted Caramel Topping:
 * *1 cup granulated sugar*
 * *1/2 cup heavy cream*
-* *2 tablespoons unsalted butter*
-* *3/4 teaspoon kosher salt, or to taste*
+* *2 tbsp unsalted butter*
+* *3/4 tsp kosher salt, or to taste*
 
 ### Instructions:
 ##### Scones:

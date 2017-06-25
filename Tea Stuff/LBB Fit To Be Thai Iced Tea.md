@@ -4,7 +4,7 @@
 ### Ingredients:
 * Pinch of crushed star anise
 * 1 drop red food coloring
-* 2 tablespoons sweetened condensed milk
+* 2 tbsp sweetened condensed milk
 * Crushed Iced2 cups strong brewed black tea, chilled
 
 ### Instructions:

@@ -3,11 +3,11 @@
 
 ### Ingredients:
 * 4 cups milk
-* 1/2 teaspoon cinnamon
-* 1/4 teaspoon ground cardamom
-* 1/2 teaspoon ground almonds
-* 5 teaspoons honey
-* 4 teaspoons Assam (or similar) black tea leaves
+* 1/2 tsp cinnamon
+* 1/4 tsp ground cardamom
+* 1/2 tsp ground almonds
+* 5 tsp honey
+* 4 tsp Assam (or similar) black tea leaves
 * 2 cups boiling water
 
 ### Instructions:
